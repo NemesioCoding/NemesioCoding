@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on open source projects as soon as I know how to and I can be helpful.
 - 📫 How to reach me: benito.barreras@protonmail.com or on LinkedIn [
 ](https://www.linkedin.com/in/benito-b-392039172/)- 😄 Pronouns: ...
-- ⚡ Fun fact: Don't really have any, I used to play professional Basketball in Germany for 3 years, and I'm late to the IT Party as I'm already 35.
+- ⚡ Fun fact: Don't really have any, I used to play professional Basketball in Germany for 3 years.
 
 
